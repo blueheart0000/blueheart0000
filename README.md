@@ -3,7 +3,7 @@
 👨‍💻 Java / Backend Developer | Software Engineer  
 🌏 Open to remote & international projects  
 📍 Based in Asia (UTC+8)
-
+ Email: baixiaobo@xpu.edu.cn
 ---
 
 ## 🧠 About Me
